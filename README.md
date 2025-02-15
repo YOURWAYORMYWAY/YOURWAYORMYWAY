@@ -1,2 +1,3 @@
-![image](https://github.com/user-attachments/assets/564ac77f-7af0-41c9-9dfb-9a10919668e2)
-hi i myles or soul i like my friends and i like candy
+![image](https://github.com/user-attachments/assets/cb71d9fa-ce7f-4aca-b2a6-cad09d5d7d38)
+
+
