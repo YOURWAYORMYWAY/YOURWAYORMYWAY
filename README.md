@@ -1,1 +1,1 @@
-![3070559_dimpsy_carnival-night-gbc-stage](https://github.com/user-attachments/assets/2d363cb7-03de-4c39-9832-875c92c0bd44)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31sqvgs424ykj5iaejf4gz6rbgiu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
