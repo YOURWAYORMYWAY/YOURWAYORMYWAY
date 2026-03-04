@@ -1,5 +1,6 @@
                                              ─── ･ ｡ﾟ☆: *.☽ .* :☆ﾟ. ───
 collection of hog and scrocrhced gifs because i LOooovee them
+![cooltext503105856530819](https://github.com/user-attachments/assets/83540e31-f094-4ea2-b91e-295740490dae)
 
 ![ezgif com-cut (2)](https://github.com/user-attachments/assets/ca22a538-e869-4096-8caf-00c2cfaed723)
 
